@@ -15,4 +15,4 @@
 
 ## How to Reach Me
 - Email: anncathywairimu947@gmail.com
-- LinkedIn: https://www.linkedin.com/in/catherine-anne-wairimu-waweru-49562472/
+- LinkedIn: https://www.linkedin.com/in/catherine-anne-wairimu-waweru-49562472
